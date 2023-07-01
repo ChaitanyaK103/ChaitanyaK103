@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @ChaitanyaK103
-- 👀 My hobbies Coding , Creating and Music
+- 👀 My hobbies Coding , Creating applications and miniature simulation and Music
